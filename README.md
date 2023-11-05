@@ -1,4 +1,4 @@
-# Hi there! 🤙🏻 I'm Gaia! @gaialytics
+# Hi there! 🤙🏻 I'm Gaia!
 I am a <b>web marketing specialist</b> with a specialization in <b>Analytics</b>.🎓
 
 I have a background in the <b>humanities</b>: I have a bachelor's degree in Languages and Cultures for Publishing and a master's degree in Publishing and Journalism.
